@@ -2,7 +2,7 @@
 
 I have transitioned my active account to **@ChimaOzonwoye**.
 
-###  [Click here to visit my new profile](https://github.com/ChimaOzonwoye)
+###  [Click here to visit my new profile](https://chimaozonwoye.github.io/portfolio/)
 
 <br>
 
